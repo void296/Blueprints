@@ -9,4 +9,4 @@
   == do they understand = the suicide in there equation = no = ok = don't die = planet destoryer = uderstood = cna = can't escape a crusade = honest = love the LIE
 
 
-  === understood = keep the machine going = long run this = we still good = can talk = /////// = K = they may play the flip to soon = 
+  === understood = keep the machine going = long run this = we still good = can talk = /////// = K = they may play the flip to soon = gets dark = check = playing AFTER
